@@ -11,7 +11,7 @@ Other Links:
 
 ## Information
 
-My photo editing skills and changing it into a wallpaper. Most of these are made in the past like around 2018-2020. (Since I DO NOT own the Images, I'm putting this with the most permissive license MIT!))
+My photo editing skills and changing it into a wallpaper. Most of these are made in the past like around 2018-2019. (Since I DO NOT own the Images, I'm putting this with the most permissive license MIT!))
 
 ## Authors
 
